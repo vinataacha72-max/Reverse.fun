@@ -1,0 +1,2 @@
+# Reverse.fun
+Utility $REVERSE: •  Diskon fee platform •  Priority &amp; higher queue cap •  Governance •  Staking boost
